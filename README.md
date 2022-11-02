@@ -1,1 +1,1 @@
-Tinkercard: https://l.facebook.com/l.php?u=https%3A%2F%2Fwww.tinkercad.com%2Fthings%2FgDJ95xX0PmN-embedded-system-activity-6%2Feditel%3Fsharecode%3DFcRk4mzNR5983WIM0ZHdVH3WiJvHPRu5llIlo9522PA&h=AT2mZF-3uIyHlCjdi_tTlLypfXUgAmGs8sDTnhRaWdzZjhbqy4vWIl-2L3bLsYIroAtqtyyeiIO8WEfM5PlEnG30NOtAsJCURLWGsnOfOpvKLhmD8HkV0sO_USunmN2rbGtzF3x83wW7hWQ&s=1
+Tinkercard: https://www.tinkercad.com/things/gDJ95xX0PmN-embedded-system-activity-6/editel?sharecode=FcRk4mzNR5983WIM0ZHdVH3WiJvHPRu5llIlo9522PA
